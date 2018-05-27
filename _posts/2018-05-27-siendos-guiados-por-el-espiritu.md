@@ -3,7 +3,7 @@ layout: post
 title: Lección 1 - Guiados por el Espíritu
 ---
 
-
+message: y
 <div class="message">
   Nosotros debemos tomar el mensaje de Cristo para nuestras calles y permitir que el Espíritu Santo tome nuestras manos, pies y voces para este mundo.
 </div>
