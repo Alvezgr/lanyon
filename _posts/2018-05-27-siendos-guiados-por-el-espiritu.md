@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Lección 1 - Siendo guiados por el Espíritu Santo
+title: Lección 1 - Guiados por el Espíritu
 ---
 
 
