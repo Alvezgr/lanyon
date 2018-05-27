@@ -6,9 +6,9 @@ permalink:           pretty
 
 # Setup
 title:               Seminario NTV
-tagline:             'Estudio biblico'
-description:         'A reserved <a href="http://jekyllrb.com" target="_blank">Jekyll</a> theme that places the utmost gravity on content with a hidden drawer. Made by <a href="https://twitter.com/mdo" target="_blank">@mdo</a>.'
-url:                 http://lanyon.getpoole.com
+tagline:             'Estudio bíblico'
+description:         'Seminario NTV estudios bíblicos para entender el verdadero llamado de Dios a los cristianos.'
+url:                 
 baseurl:             /lanyon
 paginate:            5
 
