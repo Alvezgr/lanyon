@@ -1,11 +1,11 @@
 ---
 layout: post
-title: Primer Posts
+title: Lección 1 - Siendo guiados por el Espíritu Santo
 ---
 
 
 <div class="message">
-  Howdy! This is an example blog post that shows several types of HTML content supported in this theme.
+  Nosotros debemos tomar el mensaje de Cristo para nuestras calles y permitir que el Espíritu Santo tome nuestras manos, pies y voces para este mundo.
 </div>
 
 Cum sociis natoque penatibus et magnis <a href="#">dis parturient montes</a>, nascetur ridiculus mus. *Aenean eu leo quam.* Pellentesque ornare sem lacinia quam venenatis vestibulum. Sed posuere consectetur est at lobortis. Cras mattis consectetur purus sit amet fermentum.
