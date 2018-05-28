@@ -1,6 +1,6 @@
 ---
 layout: post
-quote:  Evangelismo es el estudio de cómo testificar eficazmente y compartir el evangelio con audacia. Considera los elementos básicos del plan de salvación y su presentación con claridad. Enseña como superar la resistencia de diferentes tipos de mentalidades. Explica cómo hacer el seguimiento y presenta las verdades fundamentales que el obrero cristiano tiene que enseñarle al recién convertido. 
+quote:  Nosotros debemos tomar el mensaje de Cristo para nuestras calles y permitir que el Espíritu Santo tome nuestras manos, pies y voces para este mundo. 
 title: Lección 1 - Guiados por el Espíritu
 ---
 
