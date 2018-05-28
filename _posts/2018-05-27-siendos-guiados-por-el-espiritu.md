@@ -1,6 +1,7 @@
 ---
 layout: post
-quote:  Nosotros debemos tomar el mensaje de Cristo para nuestras calles y permitir que el Espíritu Santo tome nuestras manos, pies y voces para este mundo. 
+quote:  Nosotros debemos tomar el mensaje de Cristo para nuestras calles y permitir que el Espíritu Santo tome nuestras manos, pies y voces para este mundo.
+author: Richard C. Hobbs
 title: Lección 1 - Guiados por el Espíritu
 ---
 
