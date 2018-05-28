@@ -8,7 +8,12 @@ title: Lección 1 - Guiados por el Espíritu
   Nosotros debemos tomar el mensaje de Cristo para nuestras calles y permitir que el Espíritu Santo tome nuestras manos, pies y voces para este mundo.
 </div>
 
-Cum sociis natoque penatibus et magnis <a href="#">dis parturient montes</a>, nascetur ridiculus mus. *Aenean eu leo quam.* Pellentesque ornare sem lacinia quam venenatis vestibulum. Sed posuere consectetur est at lobortis. Cras mattis consectetur purus sit amet fermentum.
+
+Romanos 13:11-14 Traducción en lenguaje actual (TLA)
+El regreso de Cristo
+
+11 Estamos viviendo tiempos muy importantes, y ustedes han vivido como si estuvieran dormidos. ¡Ya es hora de que despierten! Ya está muy cerca el día en que Dios nos salvará; mucho más cerca que cuando empezamos a creer en Jesús. 12-14 ¡Ya casi llega el momento! Así que dejemos de pecar, porque pecar es como vivir en la oscuridad. Hagamos el bien, que es como vivir en la luz. Controlemos nuestros deseos de hacer lo malo, y comportémonos correctamente, como si todo el tiempo anduviéramos a plena luz del día. No vayamos a fiestas donde haya desórdenes, ni nos emborrachemos, ni seamos vulgares, ni tengamos ninguna clase de vicios. No busquemos pelea ni seamos celosos. Más bien, dejemos que Jesucristo nos proteja.
+
 
 > Curabitur blandit tempus porttitor. Nullam quis risus eget urna mollis ornare vel eu leo. Nullam id dolor id nibh ultricies vehicula ut id elit.
 
