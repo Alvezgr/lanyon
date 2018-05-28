@@ -11,17 +11,20 @@ title: Lección 1 - Guiados por el Espíritu
  El Espíritu Santo quiere usarnos para compartir las Buenas Noticias. A medida que aprenda más sobre evangelismo, permitirá que el Espíritu Santo sea más real en ti. Permite que ser testigo de Cristo se convierta en tu modo de vida.
 Acuerdate que Dios quiere que aprovechemos cada oportunidad para dar testimonio de Cristo. Escuchemos al Espíritu Santo y permitámosle que fluya en nosotros y nos guíe en nuestro testimonio. Debemos ser sensibles al Espíritu Santo y tomar aquello que el nos transmite. Son muchos los que necesitan entrar al reino de Dios, pero son muy pocos los discípulos para anunciarles las buenas noticias. Nosotros debemos testificar su nombre en todos lados donde andamos.
  
-**Romanos 13:11-14**
+**Romanos 13:11-14** *(TLA)*
 
 **11** Estamos viviendo tiempos muy importantes, y ustedes han vivido como si estuvieran dormidos. ¡Ya es hora de que despierten! Ya está muy cerca el día en que Dios nos salvará; mucho más cerca que cuando empezamos a creer en Jesús. 
 
 **12-14** ¡Ya casi llega el momento! Así que dejemos de pecar, porque pecar es como vivir en la oscuridad. Hagamos el bien, que es como vivir en la luz. Controlemos nuestros deseos de hacer lo malo, y comportémonos correctamente, como si todo el tiempo anduviéramos a plena luz del día. No vayamos a fiestas donde haya desórdenes, ni nos emborrachemos, ni seamos vulgares, ni tengamos ninguna clase de vicios. No busquemos pelea ni seamos celosos. Más bien, dejemos que Jesucristo nos proteja.
-*Traducción en lenguaje actual (TLA).*
 
-**1 Pedro 3:15**
+**1 Pedro 3:15** *(TLA)*
 
 **15** Honren a Cristo como Señor, y estén siempre dispuestos a explicarle a la gente por qué ustedes confían en Cristo y en sus promesas.
-*Traducción en lenguaje actual (TLA)*
+
+
+**2 Pedro 1:11** *(TLA)*
+
+**11** y Dios, con gusto, les dará la bienvenida en el reino de nuestro Señor y Salvador Jesucristo, quien reina para siempre.
 
 > Curabitur blandit tempus porttitor. Nullam quis risus eget urna mollis ornare vel eu leo. Nullam id dolor id nibh ultricies vehicula ut id elit.
 
