@@ -16,9 +16,12 @@ Acuerdate que Dios quiere que aprovechemos cada oportunidad para dar testimonio 
 **11** Estamos viviendo tiempos muy importantes, y ustedes han vivido como si estuvieran dormidos. ¡Ya es hora de que despierten! Ya está muy cerca el día en que Dios nos salvará; mucho más cerca que cuando empezamos a creer en Jesús. 
 
 **12-14** ¡Ya casi llega el momento! Así que dejemos de pecar, porque pecar es como vivir en la oscuridad. Hagamos el bien, que es como vivir en la luz. Controlemos nuestros deseos de hacer lo malo, y comportémonos correctamente, como si todo el tiempo anduviéramos a plena luz del día. No vayamos a fiestas donde haya desórdenes, ni nos emborrachemos, ni seamos vulgares, ni tengamos ninguna clase de vicios. No busquemos pelea ni seamos celosos. Más bien, dejemos que Jesucristo nos proteja.
-
 *Traducción en lenguaje actual (TLA).*
 
+**1 Pedro 3:15**
+
+**15** Honren a Cristo como Señor, y estén siempre dispuestos a explicarle a la gente por qué ustedes confían en Cristo y en sus promesas.
+*Traducción en lenguaje actual (TLA)*
 
 > Curabitur blandit tempus porttitor. Nullam quis risus eget urna mollis ornare vel eu leo. Nullam id dolor id nibh ultricies vehicula ut id elit.
 
