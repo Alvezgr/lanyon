@@ -8,12 +8,16 @@ title: Lección 1 - Guiados por el Espíritu
   Nosotros debemos tomar el mensaje de Cristo para nuestras calles y permitir que el Espíritu Santo tome nuestras manos, pies y voces para este mundo.
 </div>
 
- El Espíritu Santo quiere usarnos para compartir las Buenas Nuevas. Así como estudiamos cómo testificar con eficacia, podemos aprender juntos haciéndolo. Yo todavía estoy aprendiendo como testificar por el Espíritu Santo cada vez que lo hago en la calle compartiendo el mensaje con otros. A medida que usted aprenda más sobre el evangelismo, permitirá que el Espíritu Santo sea más real en usted que su mejor amigo. Permita que ser testigo de Cristo se convierta en su modo de vida. Muchos darán más testimonio con un equipo de gente en las calles que jamás lo hayan hecho solos en otro tiempo por su cuenta. Recuerde que Dios quiere que aprovechemos cada oportunidad para dar testimonio de Cristo. Escuchemos al Espíritu Santo y permitámosle que fluya en nosotros y nos guíe en nuestro testimonio. Nosotros debemos ser sensibles al Espíritu Santo y tomar la urgencia que el nos transmitirá. El nos dice que la mies es mucha, el tiempo es corto y los obreros son pocos. Nosotros debemos comenzar a testificar en las calles y salir puerta por puerta en las ciudades dónde vivimos.
+ El Espíritu Santo quiere usarnos para compartir las Buenas Nuevas. A medida que aprenda más sobre evangelismo, permitirá que el Espíritu Santo sea más real en usted que su mejor amigo. Permita que ser testigo de Cristo se convierta en su modo de vida.
+Acuerdate que Dios quiere que aprovechemos cada oportunidad para dar testimonio de Cristo. Escuchemos al Espíritu Santo y permitámosle que fluya en nosotros y nos guíe en nuestro testimonio. Debemos ser sensibles al Espíritu Santo y tomar la urgencia que el nos transmitirá. Son muchos los que necesitan entrar al reino de Dios, pero son muy pocos los discípulos para anunciarles las buenas noticias. Nosotros debemos testificar su nombre en todos lados donde andamos.
  
-Romanos 13:11-14 Traducción en lenguaje actual (TLA).
-El regreso de Cristo.
+Romanos 13:11-14 Traducción en lenguaje actual (TLA)
 
-11 Estamos viviendo tiempos muy importantes, y ustedes han vivido como si estuvieran dormidos. ¡Ya es hora de que despierten! Ya está muy cerca el día en que Dios nos salvará; mucho más cerca que cuando empezamos a creer en Jesús. 12-14 ¡Ya casi llega el momento! Así que dejemos de pecar, porque pecar es como vivir en la oscuridad. Hagamos el bien, que es como vivir en la luz. Controlemos nuestros deseos de hacer lo malo, y comportémonos correctamente, como si todo el tiempo anduviéramos a plena luz del día. No vayamos a fiestas donde haya desórdenes, ni nos emborrachemos, ni seamos vulgares, ni tengamos ninguna clase de vicios. No busquemos pelea ni seamos celosos. Más bien, dejemos que Jesucristo nos proteja.
+El regreso de Cristo
+
+11 Estamos viviendo tiempos muy importantes, y ustedes han vivido como si estuvieran dormidos. ¡Ya es hora de que despierten! Ya está muy cerca el día en que Dios nos salvará; mucho más cerca que cuando empezamos a creer en Jesús. 
+
+12-14 ¡Ya casi llega el momento! Así que dejemos de pecar, porque pecar es como vivir en la oscuridad. Hagamos el bien, que es como vivir en la luz. Controlemos nuestros deseos de hacer lo malo, y comportémonos correctamente, como si todo el tiempo anduviéramos a plena luz del día. No vayamos a fiestas donde haya desórdenes, ni nos emborrachemos, ni seamos vulgares, ni tengamos ninguna clase de vicios. No busquemos pelea ni seamos celosos. Más bien, dejemos que Jesucristo nos proteja.
 
 
 > Curabitur blandit tempus porttitor. Nullam quis risus eget urna mollis ornare vel eu leo. Nullam id dolor id nibh ultricies vehicula ut id elit.
