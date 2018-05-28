@@ -1,6 +1,6 @@
 ---
 layout: post
-quote:Debemos tomar el mensaje de Cristo para nuestras calles y permitir que el Espíritu Santo tome nuestras manos, pies y voces para este mundo. 
+quote:  Debemos tomar el mensaje de Cristo para nuestras calles y permitir que el Espíritu Santo tome nuestras manos, pies y voces para este mundo. 
 title: Lección 1 - Guiados por el Espíritu
 ---
 
